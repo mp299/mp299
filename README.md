@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @mp299
-- 👀 I’m interested in coding and basketball
 - 🌱 I’m currently learning Business and Information Systems
 - 💞️ I’m looking to collaborate on projects
 
